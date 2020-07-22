@@ -5,6 +5,8 @@
 # Alamat asal             : Perumda Blok BB 06 Sumbang Bojonegoro
 # Pendidikan terakhir     : Magister Pendidikan Kejuruan
 # Hobi                    : Travelling dan Author Jurnal
+# IG                      : @arifnmuhamad 
+# LinkedIn                : Arifin Muhamad
 ----------------------------------------------------------------
 # Foto terbaik yang ada :) 
 
